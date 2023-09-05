@@ -1,1 +1,1 @@
-# Political_Juggernauts_NM2023TMID05556-
+# Political_Juggernauts_NM2023TMID05556
